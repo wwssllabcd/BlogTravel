@@ -1,6 +1,8 @@
 title: 關西七日遊(京都：東寺，御所，金閣寺) 
 date: 2014-12-15 16:45:54
 tags: [Japan, Travel]
+cover_img: https://3.bp.blogspot.com/-9NBMBveJY5I/XDKeP9_2slI/AAAAAAABcCc/tjtWcbOSQYQF3T23M08nFbwl880YeQfjACKgBGAs/s1600/DPP_0060.JPG
+feature_img: https://4.bp.blogspot.com/-NAtpLa6T9Yc/XDKdsmjSUBI/AAAAAAABcCU/MCw22KElBcYms3z-lfLaiUbNFJdeesZRgCKgBGAs/s1600/DPP_0016.JPG
 ---
 
 話說寫遊記真的是很花時間，一天之中如果扣掉上班、吃飯、洗澡、睡覺、就已經沒多少時間了，

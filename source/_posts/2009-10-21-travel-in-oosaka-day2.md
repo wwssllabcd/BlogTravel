@@ -1,7 +1,8 @@
 title: 關西七日遊(京都：清水寺，時代祭，伏見稻荷大社)
 date: 2014-12-15 16:45:54
 tags: [Japan, Travel]
-feature_img: https://lh6.googleusercontent.com/--xbnxn51PKU/SucozftoqRI/AAAAAAAAOHI/H5ioZipZbw4/w879-h585-no/DPP_0097.JPG
+cover_img: https://2.bp.blogspot.com/-EQ8x_wBQLOI/XDKelLycH3I/AAAAAAABcCk/8JDgLZHaMksJCf7IS18DvNNxtsF78HkYgCKgBGAs/s1600/DPP_0097.JPG
+feature_img: https://2.bp.blogspot.com/-EQ8x_wBQLOI/XDKelLycH3I/AAAAAAABcCk/8JDgLZHaMksJCf7IS18DvNNxtsF78HkYgCKgBGAs/s1600/DPP_0097.JPG
 ---
 
 這次雖然住在大阪，不過前兩天卻要起個大早，坐一個小時的火車到京都，抵達時都還沒八點勒，難得放假出去玩為何要起的比小學生還要早?
