@@ -5,20 +5,16 @@ cover_img: https://2.bp.blogspot.com/-EQ8x_wBQLOI/XDKelLycH3I/AAAAAAABcCk/8JDgLZ
 feature_img: https://2.bp.blogspot.com/-EQ8x_wBQLOI/XDKelLycH3I/AAAAAAABcCk/8JDgLZHaMksJCf7IS18DvNNxtsF78HkYgCKgBGAs/s1600/DPP_0097.JPG
 ---
 
-這次雖然住在大阪，不過前兩天卻要起個大早，坐一個小時的火車到京都，抵達時都還沒八點勒，難得放假出去玩為何要起的比小學生還要早?
-這是因為跟一家叫 [`岡本織物`](http://www.okamoto-kimono.com/)的店家有約。  
+這次雖然住在大阪，不過前兩天卻要起個大早，坐一個小時的火車到京都，抵達時都還沒八點勒，難得放假出去玩為何要起的比小學生還要早? 這是因為跟一家叫 [`岡本織物`](http://www.okamoto-kimono.com/)的店家有約。  
 
 岡本織物
 -----------
-岡本織物是提供所謂的”和服體驗，該店就座落在清水寺的旁邊，佔盡地利，
-客人換完裝走兩下就到清水寺，方便的很。   
+岡本織物是提供所謂的”和服體驗，該店就座落在清水寺的旁邊，佔盡地利，客人換完裝走兩下就到清水寺，方便的很。   
 ![岡本織物，這個角度是從店內拍出去的](https://lh6.googleusercontent.com/-ep2m-jewGzw/SucoioBJDNI/AAAAAAAArr4/0UAQhE3Jamc/w879-h585-no/DPP_0085.JPG)  
 
 <!-- more -->
 
-而店內布置亦很日式(日式凌亂？)，雖然變裝價格稍高一點，
-但的確值得一試，在試裝完畢後，還不忘替你拍照"戰果"，PO在他們的網頁上喔(羞)，
-店內亦有非常多的和服可以挑選，雖然跟裡面的歐巴桑無法溝通，但是比手劃腳也是過的去啦，換好裝後，就直接到清水寺嚕。
+而店內布置亦很日式(日式凌亂？)，雖然變裝價格稍高一點，但的確值得一試，在試裝完畢後，還不忘替你拍照"戰果"，PO在他們的網頁上喔(羞)，店內亦有非常多的和服可以挑選，雖然跟裡面的歐巴桑無法溝通，但是比手劃腳也是過的去啦，換好裝後，就直接到清水寺嚕。
 ![一堆和服任君選擇](https://lh5.googleusercontent.com/-biSOnkVvoww/SuconAtYbJI/AAAAAAAAOHI/Ad7C87pPVvg/w879-h585-no/DPP_0089.JPG)  
 
 清水寺
@@ -33,16 +29,13 @@ feature_img: https://2.bp.blogspot.com/-EQ8x_wBQLOI/XDKelLycH3I/AAAAAAABcCk/8JDg
 清水舞台
 -----------  
 
-後面則是著名的清水舞台，清水舞台是沿著懸厓蓋的，所謂的從清水舞台跳下去`清水の舞台から飛び下りる`，
-就是因為很高，所以跳下去需要極大的勇氣，比喻破釜沈舟的意思   
+後面則是著名的清水舞台，清水舞台是沿著懸厓蓋的，所謂的從清水舞台跳下去`清水の舞台から飛び下りる`，就是因為很高，所以跳下去需要極大的勇氣，比喻破釜沈舟的意思   
 ![清水舞台](https://lh4.googleusercontent.com/-uPq6vNrT6BI/SucpLbJnnlI/AAAAAAAAOHI/jSPhWCFSmJ0/w879-h585-no/DPP_0116.JPG)  
 
-當然，清水寺也是處處美景，往樓梯走下去，則會到著名的音羽瀑布，光灑下來感覺格外的神聖，其中泉水有三處，
-分別代表著金錢，健康，智慧，不過只能選兩個喝，若喝了三個就是太貪心，會導致厄運(結果我一個也沒喝)  
+當然，清水寺也是處處美景，往樓梯走下去，則會到著名的音羽瀑布，光灑下來感覺格外的神聖，其中泉水有三處，分別代表著金錢，健康，智慧，不過只能選兩個喝，若喝了三個就是太貪心，會導致厄運(結果我一個也沒喝)  
 ![泉水](https://lh6.googleusercontent.com/-kfTRZqOMv8I/SucpbuQULVI/AAAAAAAAOHI/sKjYeTDdtBQ/w879-h585-no/DPP_0134.JPG)
 
-當然，除了清水寺外，前面的清水坂亦很有看頭，除了古色古香的街道讓人深陷其中外，也有讓人垂涎三尺的京都小吃抹茶冰，
-但不僅是抹茶冰而已，連抹茶肉包都有，舔了一口後才想到要拍照的抹茶冰  
+當然，除了清水寺外，前面的清水坂亦很有看頭，除了古色古香的街道讓人深陷其中外，也有讓人垂涎三尺的京都小吃抹茶冰，但不僅是抹茶冰而已，連抹茶肉包都有，舔了一口後才想到要拍照的抹茶冰  
 ![抹茶冰](https://lh4.googleusercontent.com/-EcWVNQOHcBk/SucpmqL2_MI/AAAAAAAAOHI/vfFyHZ0oCyM/w879-h585-no/DPP_0151.JPG)  
 ![抹茶肉包](https://lh3.googleusercontent.com/-v6tSUrDF-J4/SucqPDgjkMI/AAAAAAAAOHI/1N_Z7gniRtM/w879-h585-no/DPP_0186.JPG)  
 
@@ -58,8 +51,7 @@ feature_img: https://2.bp.blogspot.com/-EQ8x_wBQLOI/XDKelLycH3I/AAAAAAABcCk/8JDg
 
 時代祭
 -----------
-祭好了五臟廟後，原本打算搭上公車去御所看時代祭，不過因為交通管制，公車走走停停，索性隨便就下了車，反正上洛的隊伍也會經過，
-上洛的隊伍非常的長，人數也很多，不知道他們是怎麼動員的
+祭好了五臟廟後，原本打算搭上公車去御所看時代祭，不過因為交通管制，公車走走停停，索性隨便就下了車，反正上洛的隊伍也會經過，上洛的隊伍非常的長，人數也很多，不知道他們是怎麼動員的
 ![](https://lh4.googleusercontent.com/-yIC4ATQT10o/Sucqo12R3RI/AAAAAAAAOHI/xh4O-r9BzPY/w879-h585-no/DPP_0200.JPG)   
 ![](https://lh5.googleusercontent.com/-8AdrajYW-NU/SucqsxgWCkI/AAAAAAAAOHI/lt8BtUtAghI/w879-h585-no/DPP_0209.JPG)  
 
@@ -84,8 +76,7 @@ feature_img: https://2.bp.blogspot.com/-EQ8x_wBQLOI/XDKelLycH3I/AAAAAAABcCk/8JDg
 的關係  
 ![](https://lh3.googleusercontent.com/-TQoBQGvVrWI/SucrsEJ3J6I/AAAAAAAAOHI/gtR5h8EvVd4/w879-h585-no/DPP_0297.JPG)  
 
-往內一走，不出一會就可以看到千本鳥居了，到這裡應該要模仿一下藝妓回藝錄裡面的小時候的小百合在陽光下的千本鳥居中奔跑，
-只可惜我們是傍晚才來，沒有陽光射進來的感覺  
+往內一走，不出一會就可以看到千本鳥居了，到這裡應該要模仿一下藝妓回藝錄裡面的小時候的小百合在陽光下的千本鳥居中奔跑，只可惜我們是傍晚才來，沒有陽光射進來的感覺  
 ![千本鳥居](https://lh3.googleusercontent.com/-VQDpJFgpRzU/SucsLBqv3EI/AAAAAAAAOHI/iRbKiTX79J8/w879-h585-no/DPP_0308.JPG)  
 
 這裡的繪馬也很有特色喔，都是狐狸，狐狸在日本可以豐收之神喔  
@@ -98,8 +89,6 @@ feature_img: https://2.bp.blogspot.com/-EQ8x_wBQLOI/XDKelLycH3I/AAAAAAABcCk/8JDg
 ![中村藤吉](https://lh6.googleusercontent.com/-Q_pPnKY1VDk/SucssShxl9I/AAAAAAAAOHI/0pIBW3cYoc0/w879-h585-no/DPP_0328.JPG)  
 ![中村藤吉](https://lh3.googleusercontent.com/-UCpFejK1WZM/Sucsvo7Vg-I/AAAAAAAAOHI/Cz86qF-E05Q/w879-h585-no/DPP_0329.JPG)  
 
-今天晚上回去的時候，還不太懂怎坐火車，不懂日文也可以比手劃腳的問出一些東西，當下也覺得自己很厲害，
-很可惜這次京都只有給兩天的時間，我想我下次有機會再去的話一定要好好看看這個美麗的古都。  
+今天晚上回去的時候，還不太懂怎坐火車，不懂日文也可以比手劃腳的問出一些東西，當下也覺得自己很厲害，很可惜這次京都只有給兩天的時間，我想我下次有機會再去的話一定要好好看看這個美麗的古都。  
 
-接下來行程就是大阪了，包括猴子蓋的城堡"大阪城"，也會去安道頓挖的運河"道頓掘"那邊吃吃逛逛，
-而那邊的心齋橋可是很可怕的，進去後錢就會莫名其妙的不見了(我的日幣就是在那邊被店家吸走的)。   
+接下來行程就是大阪了，包括猴子蓋的城堡"大阪城"，也會去安道頓挖的運河"道頓掘"那邊吃吃逛逛，而那邊的心齋橋可是很可怕的，進去後錢就會莫名其妙的不見了(我的日幣就是在那邊被店家吸走的)。   
